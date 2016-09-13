@@ -1,5 +1,3 @@
-**Una vaina rara**
-
 Tenía la manía de relacionar todas las cosas, que sí comía zanahoria de alguna manera mi vista se vería beneficiada y que era un caso de desconfianza el bañarse y cepillarse al mismo tiempo, cosa de brujos decía un conocido.
 Esa era una vaina rara.
 Con mi falta de memoria el relacionar todo me hacía un bien, luego te conocí estabas bella y todo se me hacía bonito, disfrutaba todo, habían estrellas, besos rotos, sentimientos compartidos, no te vayas quédate un rato más, noches libres, tus curvas, tu boca, la mía, mi lugar favorito, café, te quiero.
